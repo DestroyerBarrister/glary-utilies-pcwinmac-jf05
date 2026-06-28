@@ -1,4 +1,4 @@
-# 
+# Instantané Glary Utilities préréglages pour Mac OS | VIP Glary Utilities préréglages pour PC Windows. Avec optimisation de la mémoire et réglages Windows — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
